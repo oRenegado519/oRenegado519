@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @oRenegado519
+- Sou novato em leitura e programação de códigos, aprendendo por hobby
+- 
